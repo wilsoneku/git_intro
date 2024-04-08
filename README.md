@@ -1,2 +1,1 @@
 Wilson Ku
-22
